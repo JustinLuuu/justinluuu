@@ -1,2 +1,2 @@
-### Heeey holaa 👋
+### Hola, hola 👋
 - 🤩 Hola, soy @JustinLuuu
